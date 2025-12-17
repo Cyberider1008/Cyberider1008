@@ -15,7 +15,7 @@
 ---
 
 ## 🔗 Socials
-[LinkedIn](www.linkedin.com/in/ashishkumar1008) •
+[LinkedIn](https://linkedin.com/in/ashishkumar1008) •
 [GitHub](https://github.com/cyberider1008)
 
 ---
